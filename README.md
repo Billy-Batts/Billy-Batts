@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Billy-Batts
+- 👀 I’m interested in CS50x
+- 🌱 I’m currently learning CS50x
+- 💞️ :)
+- 📫 :)
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact:)
+- This is a special repository :) >:) >:( 
